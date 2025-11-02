@@ -1,2 +1,2 @@
-Mi comida favorita es el arroz con pollo
+Mis comidas favorita es la pizza y el arroz con pollo
 
